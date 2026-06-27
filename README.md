@@ -1,4 +1,6 @@
-<div align="center"> <img src="https://64.media.tumblr.com/6a09daddd5020b73a1522d54771bf70a/cd3918f1a05e049f-0b/s75x75_c1/ef3f1488a88244c22b78555d25a85c51b3af982f.gifv"> . ° ✭· <em>MATT</em> or sunny and more names</br>
+<div align="center"><img src="https://64.media.tumblr.com/f1c10bd1149dabf5221dfce1af9f280b/716ff47797a754a3-60/s400x600/5e8a02bd50ea797580c6e7db4a3ed7b9b4a7a2cc.pnj"> </br> <img src="https://64.media.tumblr.com/6a09daddd5020b73a1522d54771bf70a/cd3918f1a05e049f-0b/s75x75_c1/ef3f1488a88244c22b78555d25a85c51b3af982f.gifv"> . ° ✭· <b><em>MATT</em></b> or sunny and more names</br>
 ⚓︎ he/any .　 ۫ · spiritual fictkin and yume. . . <img src="https://64.media.tumblr.com/63173677e4583f4bdfd1006ae3941c51/5a660f9317ac803d-03/s75x75_c1/db2793930e546c594c504dbea704acf767f63017.gifv"> </br>
-<img src="https://64.media.tumblr.com/05dfd802eadc1653467baa0a3933dd43/88b598d84d95cf13-6c/s75x75_c1/1075dadcca0d2fd469c06a2c780d9ca74893f4b6.gifv"> infp 2w3 4w3 audhd ocd spd suspected bpd 𓏲 ๋࣭  ࣪ ˖</br>
-(¬`‸´¬) tsundere ꒰🌴꒱ؘ ࿐ ࿔*:･ﾟ <img src="https://64.media.tumblr.com/65b742d4f3eacca6b9eb7caa98498d6b/5a660f9317ac803d-da/s75x75_c1/be4d40bf6121bd85dbbc8e9ac0b6440aadc3942a.gifv"> </div>
+<img src="https://64.media.tumblr.com/05dfd802eadc1653467baa0a3933dd43/88b598d84d95cf13-6c/s75x75_c1/1075dadcca0d2fd469c06a2c780d9ca74893f4b6.gifv"> infp 2w3 4w3 audhd ocd spd <em>suspected</em> bpd 𓏲 ๋࣭  ࣪ ˖</br>
+(¬`‸´¬) <b>taken</b> by my lovely edd and <a href="https://rentry.co/communismm">tord</a> ꒰<img src="https://64.media.tumblr.com/07bde553e36911ebaa53e84dd40ba8c5/46aa0f91c599f5b5-1b/s75x75_c1/238df59386f00ce42202f661b605943d063c75b8.gifv">꒱ؘ ࿐ ࿔*:･ﾟ </br>
+<a href="https://pronouns.cc/@sososunniest">pronouns cc</a> .  <a href="https://sunnysresort.straw.page">strawpage</a> . <a href="sososunny.atabook.org">atabook</a></br>
+  <img src="https://files.catbox.moe/92dw6n.webp"></div>
